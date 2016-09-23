@@ -5,4 +5,6 @@ Although I am happy for any of my original work to be used under the GNU General
 
 I ask that viewers respect the rights of authors whose work is stored here.
 
-I will annotate work that might require the originators permission but this site will only hold work that has been made publically available i.e. uTube vidos or other internet locations.
+I will annotate work that might require the originators permission but this site will only hold work that has been made publically available i.e. uTube videos or other internet locations.
+
+In that respect all should be good.
